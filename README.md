@@ -1,1 +1,0 @@
-# BitcoinOrg_RU_SNG
